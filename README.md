@@ -37,6 +37,29 @@ Assisted with the construction of Wyndham Hotel installing fabricated oak panels
 + Over 30 years as electrician
 + Over 30 years as home improvement contractor focusing on: Carpentry rough & finish
 
-#### <p align="center">SKILLS AND ABILITIES</p>
+| | SKILLS AND ABILITIES | |
+|--- | --- | ---|
+| Cabinetry/tile work/countertops &nbsp;&nbsp;&nbsp;&nbsp;| Drywall installation & finish &nbsp;&nbsp;&nbsp;&nbsp;
+| Plumbing &nbsp;&nbsp;&nbsp;&nbsp;| Electrical Service & repair (up to 440 volts) &nbsp;&nbsp;&nbsp;&nbsp;
+| Roofing &nbsp;&nbsp;&nbsp;&nbsp;| Masonry & Concrete finishing &nbsp;&nbsp;&nbsp;&nbsp;
 
+#### <p align="center">AFFILIATIONS</p>
+Certified as a Minority Business Enterprise
+United States Navy Veteran
 
+#### <p align="center">EDUCATION</p>
+Bachelors in applied science Carthage College: Commercial Design
+Associates Degree Wentworth Technical Institution: Construction Management, Blueprint
+
+#### <p align="center">ACCOMPLISHMENTS AND SUCCESSFUL PROJECTS</p>
+Successfully constructed Johnson's Worldwide corporate headquarters when attached with Bukacek Construction International
+
+Successfully constructed Crosswinds & Plumb Ridge Condominium complex in Racine, WI
+
+Successfully constructed Blunt Ellis and Lloyd Suites in the Wyndham Hotel
+
+Successfully completed over 150 residential properties in Southeastern Wisconsin
+
+Study job speifications to determine appropriate construction methods
+
+#### <p align="center">REFERENCES AVAILABLE UPON REQUEST</p>
