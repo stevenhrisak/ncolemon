@@ -16,17 +16,16 @@ Highly accomplished, result driven project manager who has conveyed and conferre
 
 #### <p align="center">PROFESSIONAL EXPERIENCE</p>
 
-_Agape Development Company, Inc._ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 2000 - December 2007
-#### GENERAL CONTRACTOR
+##### GENERAL CONTRACTOR &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; _Agape Development Company, Inc._ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 2000 - December 2007
 
 Inspected and reviewed projects to monitor compliance with environmental regulations. Planned, organized and directed activities concerned with the construction and maintenance of structures, facilities, and systems.  Studied job specifications to determine appropriate construction methods and investigated damage, accidents, or delays at construction sites to ensure that proper construction procedures are being followed.  Prepared contracts and negotiated revisions to contractual agreements with architects, consultants, clients, suppliers, or subcontractors.
 
-_Boston Minor Construction_ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 1990 - December 1999
-#### MASTER CARPENTER
+##### MASTER CARPENTER &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; _Boston Minor Construction_ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 1990 - December 1999
+
 Oversaw and supervised the residential framing and finish converting of Emerson College into single family residences for a private developer utilizing multiple hand and power tools, to include torches and cutting instruments, floats, levels, and welding instruments both stick and wire.
 
-_R. J. Lederer Company_ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 1985 - December 1989
-#### MASTER CARPENTER
+##### MASTER CARPENTER &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; _R. J. Lederer Company_ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 1985 - December 1989
+
 Assisted with the construction of Wyndham Hotel installing fabricated oak panels, crown molding, chair railing, countertops in high elevation suites for large commercial client Blunt Ellis and Lloyd.  Prepared contracts or negotiated revisions to contractual agreements with architects, consultants, clients, suppliers and subcontractors.
 
 #### KNOWLEDGE IN CONSTRUCTION TRADE
