@@ -37,8 +37,8 @@ Assisted with the construction of Wyndham Hotel installing fabricated oak panels
 + Over 30 years as electrician
 + Over 30 years as home improvement contractor focusing on: Carpentry rough & finish
 
-| | SKILLS AND ABILITIES | |
-|--- | --- | ---|
+| | SKILLS AND ABILITIES |
+|--- | --- |
 | Cabinetry/tile work/countertops &nbsp;&nbsp;&nbsp;&nbsp;| Drywall installation & finish &nbsp;&nbsp;&nbsp;&nbsp;
 | Plumbing &nbsp;&nbsp;&nbsp;&nbsp;| Electrical Service & repair (up to 440 volts) &nbsp;&nbsp;&nbsp;&nbsp;
 | Roofing &nbsp;&nbsp;&nbsp;&nbsp;| Masonry & Concrete finishing &nbsp;&nbsp;&nbsp;&nbsp;
@@ -48,7 +48,7 @@ Certified as a Minority Business Enterprise
 United States Navy Veteran
 
 #### <p align="center">EDUCATION</p>
-Bachelors in applied science Carthage College: Commercial Design
+Bachelors in applied science Carthage College: Commercial Design<br />
 Associates Degree Wentworth Technical Institution: Construction Management, Blueprint
 
 #### <p align="center">ACCOMPLISHMENTS AND SUCCESSFUL PROJECTS</p>
