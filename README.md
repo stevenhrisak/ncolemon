@@ -22,16 +22,14 @@ _Agape Development Company, Inc._ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nb
 Inspected and reviewed projects to monitor compliance with environmental regulations. Planned, organized and directed activities concerned with the construction and maintenance of structures, facilities, and systems.  Studied job specifications to determine appropriate construction methods and investigated damage, accidents, or delays at construction sites to ensure that proper construction procedures are being followed.  Prepared contracts and negotiated revisions to contractual agreements with architects, consultants, clients, suppliers, or subcontractors.
 
 _Boston Minor Construction_ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 1990 - December 1999
-
 #### MASTER CARPENTER
 Oversaw and supervised the residential framing and finish converting of Emerson College into single family residences for a private developer utilizing multiple hand and power tools, to include torches and cutting instruments, floats, levels, and welding instruments both stick and wire.
 
 _R. J. Lederer Company_ &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; January 1985 - December 1989
-
 #### MASTER CARPENTER
 Assisted with the construction of Wyndham Hotel installing fabricated oak panels, crown molding, chair railing, countertops in high elevation suites for large commercial client Blunt Ellis and Lloyd.  Prepared contracts or negotiated revisions to contractual agreements with architects, consultants, clients, suppliers and subcontractors.
 
-#### <p align="center">KNOWLEDGE IN CONSTRUCTION TRADE</p>
+#### KNOWLEDGE IN CONSTRUCTION TRADE
 + Over 35 years in Construction & Real Estate Development
 + Over 34 years as master carpenter
 + Over 30 years as electrician
@@ -43,15 +41,15 @@ Assisted with the construction of Wyndham Hotel installing fabricated oak panels
 | Plumbing &nbsp;&nbsp;&nbsp;&nbsp;| Electrical Service & repair (up to 440 volts) &nbsp;&nbsp;&nbsp;&nbsp;
 | Roofing &nbsp;&nbsp;&nbsp;&nbsp;| Masonry & Concrete finishing &nbsp;&nbsp;&nbsp;&nbsp;
 
-#### <p align="center">AFFILIATIONS</p>
+#### AFFILIATIONS
 Certified as a Minority Business Enterprise
 United States Navy Veteran
 
-#### <p align="center">EDUCATION</p>
+#### EDUCATION
 Bachelors in applied science Carthage College: Commercial Design<br />
 Associates Degree Wentworth Technical Institution: Construction Management, Blueprint
 
-#### <p align="center">ACCOMPLISHMENTS AND SUCCESSFUL PROJECTS</p>
+#### ACCOMPLISHMENTS AND SUCCESSFUL PROJECTS
 Successfully constructed Johnson's Worldwide corporate headquarters when attached with Bukacek Construction International
 
 Successfully constructed Crosswinds & Plumb Ridge Condominium complex in Racine, WI
@@ -62,4 +60,4 @@ Successfully completed over 150 residential properties in Southeastern Wisconsin
 
 Study job speifications to determine appropriate construction methods
 
-#### <p align="center">REFERENCES AVAILABLE UPON REQUEST</p>
+#### REFERENCES AVAILABLE UPON REQUEST
